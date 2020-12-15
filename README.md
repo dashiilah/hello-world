@@ -1,4 +1,4 @@
-# hello-world
+# So tired but let's just enjoy life
 
-Hey, Ashiila here! Just another normal 16 year old high school dropout
-I like doing anything, and never am bad at anything.
+Hey, Ashiila here! Just a proud high school dropout who got accepted in Bandung Institute of Technology~
+Currently studying engineering physics.
